@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Tamnesic
+- 👀 I’m interested in security,hacking,coding,programming,cracking.
+- 🌱 I’m currently learning hacking,coding,programming, Tails linux.
+- 💞️ I’m looking to collaborate on learning and working with professionals to improve my skills.
+- 📫 How to reach me ...(loyalroyce@pm.me)
+-   You can teach me Tails linux and hacking skills.
+-   Anyone who helps in my journey will be appreciated.
+-   Thanks.
